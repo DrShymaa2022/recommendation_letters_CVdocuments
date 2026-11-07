@@ -28,3 +28,23 @@ Since all applications involve this wide range disability questionnaire, let me 
 -I never drink Alcohol (or anything that makes the mind go away), and I never eat Ham.
 
 The thing is universities put really a wide range that they sometimes include diabetics or high blood pressure; I do not want to use the equity-diversity idea behind that, still I do mot want to pretend to be Ms "all perfect"
+
+
+Photos from more recent activities:
+
+-NILES2022 : https://nu.edu.eg/events/niles-conference-2022
+(attendant, and the photo is from the Blockchain keynote session)
+<img width="2048" height="1366" alt="FB_IMG_1790932440031" src="https://github.com/user-attachments/assets/61f43d2b-5252-49fb-b72c-57f2c4332b2b" />
+
+-E-Vote-ID 2025 : (having 3 posters)
+![WhatsApp Image 2025-10-03 at 09 44 15](https://github.com/user-attachments/assets/0faffe7d-9051-4ca3-8aca-85d29ae93bb2)
+<img width="478" height="698" alt="image" src="https://github.com/user-attachments/assets/6ca2fd81-fcdc-4ab6-9f39-e3f4f7909e83" />
+
+-UGRF 2026
+<img width="13526" height="9447" alt="UGRF_2026" src="https://github.com/user-attachments/assets/af9f2d2c-d140-4c28-a084-bee05f57d3b3" />
+
+
+
+
+
+
